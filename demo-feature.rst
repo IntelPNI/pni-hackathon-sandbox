@@ -1,1 +1,1 @@
-Valuable contribution.
+Valuable
